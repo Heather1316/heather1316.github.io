@@ -11,7 +11,7 @@ I am a **46 Year Old** _Senior Service Manager_ at a Steakhouse in Knightdale, N
 I love to ***cook***!! The kitchen _HAS_ to be my happy place. Even though I work at a restaurant _50_ hours out of my week, I still enjoy coming home and creating new dishes for my family to try. One of my favorite quotes about cooking is from _Thomas Keller_
 >"_A recipe has no soul. you as the cook must bring soul to the recipe._"
 
-If I am not in the kitchen or at work, I am attending _Wake Tech_ to get my _AAS_ in _CyberSecurity_. Computers have always been an interest of mine, and I am looking to futher my education and explore another interst I have in life besides being at a restaurant. Things are definitly interesting since I have not been in a school setting since I graduated _high school_ in **1996**.
+If I am not in the kitchen or at work, I am attending _Wake Tech_ to get my _AAS_ in _CyberSecurity_. Computers have always been an interest of mine, and I am looking to further my education and explore another interests I have in life besides being in a restaurant. Things are very interesting since I have not been in a school setting since I graduated _high school_ in **1996**.
 ### Websites I Recommend
 - [Pinterest](https://www.pinterest.com/) -  I absolutely **_LOVE_** Pinterest. I can find new recipes, look for different crafts to do, even find awesome ideas for some new _tattoos_!
 - [Instagram](https://www.instagram.com/) - What can I say about Instagram other than it is **_HOURS_** of entertainment!! You can follow your friends and everything they are doing in their life, or watch countless videos that other people, _that you don't know_, post about theirs.
